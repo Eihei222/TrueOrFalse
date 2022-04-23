@@ -27,5 +27,5 @@
 |4月10日|	徐汇 徐家汇 居民楼被锁	|不知道（倾向于真）|	没有搜到，但被居委会锁楼是一位朋友的亲身经历		|||
 |4月12日|	凌晨 母亲挨家挨户敲门为发烧孩子求退烧药 120三百多人排队，居委会没有药|	真	| |	http://zjnews.china.com.cn/yuanchuan/2022-04-12/335384.html	||
 |4月13日|	徐汇 志愿者拒绝给居民楼贴封条	|真	||	https://www.youtube.com/watch?v=dbmaGemUtvU	||
-|4月12日|	徐汇 老先生向居委求助送医无果|	真	|确实票圈见到很多次|	https://3g.163.com/dy/article/H4U7LBFQ0552IZMU.html	||
+|4月12日|	徐汇 老先生向居委求助送医无果|	真	|票圈见到多次，并有官方新闻报道|	https://baijiahao.baidu.com/s?id=1730041907132173390&wfr=spider&for=pc	||
 
